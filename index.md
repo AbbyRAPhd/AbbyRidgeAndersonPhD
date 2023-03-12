@@ -1,5 +1,5 @@
 ---
-Reflections of a Developmental Suicidologist
+Title: Reflections of a Developmental Suicidologist
 ---
 
 
