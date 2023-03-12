@@ -1,5 +1,5 @@
 ---
-title: "Hope is a Green Eyeliner Pencil"
+title: "Hope-is-a-Green-Eyeliner-Pencil"
 date: 2023-03-12
 ---
 Once upon a time, two 14 year old girls met each other during their first weekend at boarding school. They were both pretty weird, and they became best friends almost immediately; although it would take both of them years to figure out that weird is just a side effect of being awesome. Despite the inherent awkwardness & social insecurities of early adolescence, they didn't mind, and actually enjoyed, being weird together. 
